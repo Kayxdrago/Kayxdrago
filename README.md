@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kayxdrago
-- 👀 I’m interested in ... learning to code/becoming an animator (srry is i spelt that wrong)/ and gaming!
+- 👀 I’m interested in ... learning to code/becoming an animator (srry if i spelt that wrong)/ and gaming!
 - 🌱 I’m currently learning ... how to make a app
 - 📫 How to reach me ... my tiktok (kayxdrago2) and email (kadyn1015@outlook.com)
 - 😄 Pronouns: ...he/they
